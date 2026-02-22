@@ -1,6 +1,6 @@
 TickMe Privacy Policy 
 
-Effective Date: December 2025 
+Effective Date: February 2026 
 
 Information We Collect 
 
