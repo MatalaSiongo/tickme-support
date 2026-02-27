@@ -80,4 +80,4 @@ We may update this Privacy Policy from time to time. Changes will be reflected b
 
 If you have questions about this Privacy Policy, you may contact us at:
 
-[Insert Contact Email Here]
+[siongomatala@gmail.com]
